@@ -1,1 +1,1 @@
-# WonderRP-web
+# Ta oto stronka https://wonderrp.xyz/
